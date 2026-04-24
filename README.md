@@ -1,6 +1,6 @@
 <p align="center">elli vatore x folly ceo
 </p>
-<p align="center"> <img width="374" height="463" alt="image" src="https://github.com/user-attachments/assets/f9937f61-8b7f-4acc-8672-9ce95a7f4849" />
+<p align="center"><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/e7387d29-61ea-4725-a7cc-839948d526ce" />
 </p>
 <p align="center"> read rentry
 </p>
