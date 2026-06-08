@@ -1,6 +1,6 @@
 <div align="center">
 
-THE pest of ponytown. thank you [@fan-town](https://github.com/fan-town) !
+THE pest of ponytown. thank you [@title-town](https://github.com/title-town) !
 
 
 <p align="center">pest introject
