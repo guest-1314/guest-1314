@@ -1,5 +1,7 @@
-<p align="center">THE pest of ponytown 🖤 thank yu @title-town
-</p>
+<div align="center">
+
+THE pest of ponytown. thank you [@fan-town](https://github.com/fan-town) !
+
 
 <p align="center">pest introject
 </p>
