@@ -1,6 +1,6 @@
 <div align="center">
 
-THE pest of ponytown. [@title-town](https://github.com/title-town) [@pt-medals](https://github.com/pt-medals)
+THE pest of ponytown. [@title-town](https://github.com/title-town) [@pt-medals](https://github.com/pt-medals) [@ponytown-nominations](https://github.com/ponytown-nominations)
 
 
 dni if you ship pest or melanie with folly
