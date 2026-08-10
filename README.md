@@ -7,7 +7,8 @@ i like poob [pt-loveforfictional](https://github.com/pt-loveforfictional)
 
 <p align="center">pest introject
 </p>
-<p align="center"><img width="400" alt="image" src="https://github.com/user-attachments/assets/e7387d29-61ea-4725-a7cc-839948d526ce" />
+<p align="center"><img width="196" alt="image" src="https://github.com/user-attachments/assets/8be1924c-3fd5-4bbf-97f0-8b6fb44d1eab" />
+
 </p>
 
 <div align="center">
