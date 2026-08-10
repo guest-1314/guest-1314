@@ -12,6 +12,7 @@ i like poob [pt-loveforfictional](https://github.com/pt-loveforfictional)
 
 <div align="center">
 
-[read rentry byi](https://rentry.co/prisoner1314)
+[prns.cc](https://pronouns.cc/@guest1314) .
+[rentry](https://rentry.co/prisoner1314)
 
 </div>
