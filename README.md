@@ -2,7 +2,7 @@
 
 THE pest of ponytown. [@title-town](https://github.com/title-town) [@pt-medals](https://github.com/pt-medals) [@ponytown-nominations](https://github.com/ponytown-nominations)
 
-i like poob [pt-loveforfictional](https://github.com/pt-loveforfictional)
+i like partybeetle [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@ship-town](https://github.com/ship-town)
 
 
 <p align="center">pest introject
