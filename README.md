@@ -13,7 +13,8 @@ $\color{#A33A65}{\textsf{i like partybeetle}}$ [@pt-loveforfictional](https://gi
 
 <div align="center">
 
-[prns.cc](https://pronouns.cc/@guest1314) .
-[rentry](https://rentry.co/prisoner1314)
+[prns.cc](https://pronouns.cc/@guest1314) $\color{#A33A65}{\textsf{𓏵}}$
+[rentry](https://rentry.co/prisoner1314) $\color{#A33A65}{\textsf{𓏵}}$
+[新book](https://undyingregret.atabook.org/)
 
 </div>
