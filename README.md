@@ -4,6 +4,7 @@ $\color{#A33A65}{\textsf{THE pest of ponytown}}$ [@title-town](https://github.co
 
 $\color{#A33A65}{\textsf{i like partybeetle}}$ [@pt-loveforfictional](https://github.com/pt-loveforfictional) [@ship-town](https://github.com/ship-town) [@pt-medals2](https://github.com/pt-medals2)
 
+$\color{#A33A65}{\textsf{not a yumeshipper}}$
 
 <p align="center">$\color{#A33A65}{\textsf{pest introject ﹠ teto fan}}$
 </p>
